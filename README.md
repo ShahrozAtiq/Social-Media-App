@@ -179,6 +179,7 @@ Contact me for any Feedback or questions
 //Num num
 //lolipop 
 //MDR 
+//Goofy furry
+//Ws in the chat
 //Goofy AKA Roja
 //Ws in the chat
-
