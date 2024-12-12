@@ -175,9 +175,3 @@ Contact me for any Feedback or questions
       <a href="https://instagram.com/shahahahahroz">Instagram</a>
     </td>
   </tr>
-</table>
-//Num num
-//lolipop 
-//MDR 
-//Goofy (Roja was adopted in a zoo)
-
