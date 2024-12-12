@@ -179,6 +179,7 @@ Contact me for any Feedback or questions
 //Num num
 //lolipop 
 //MDR 
-//Goofy
+//Goofy MAXIMUM PULSE
 //Ws in the chat
+
 
