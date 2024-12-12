@@ -175,4 +175,3 @@ Contact me for any Feedback or questions
       <a href="https://instagram.com/shahahahahroz">Instagram</a>
     </td>
   </tr>
-</table>
