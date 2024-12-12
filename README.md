@@ -179,5 +179,5 @@ Contact me for any Feedback or questions
 
 //lolipop 
 //MDR 
-//Goofy
+//Goofy furry
 //Ws in the chat
