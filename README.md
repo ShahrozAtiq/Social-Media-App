@@ -179,5 +179,5 @@ Contact me for any Feedback or questions
 //Num num
 //lolipop 
 //MDR 
-//Goofy MAXIMUM PULSE iron man pov  furry AKA Roja
-//Ws in the chat
+//Goofy (Roja was adopted in a zoo)
+
